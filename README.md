@@ -1,6 +1,6 @@
 # Recruiting-Assistant-for-HR-Managers
 
-video demonstration link - https://youtu.be/NJtTiQGsKXg
+video demonstration link - https://youtube.com/shorts/K8Cn8QbcGTk?feature=share
 
 Team Leader - https://trailblazer.me/id/vveeran8  Team member 1 - http://trailblazer.me/id/dthangavel10  Team member 2 - https://trailblazer.me/id/bmarimuthu2  Team members 3 - https://trailblazer.me/id/dselvam12
 
